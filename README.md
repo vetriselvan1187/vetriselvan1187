@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vetriselvan1187
-- 👀 I’m interested in learning new technologies, software development, problem solving..etc
+- 👀 I’m interested in working on technologies that solves complex problem. I would be really keen to work on diverse set of projects.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - Kindly reach me at vetriselvan1187@protonmail.com
